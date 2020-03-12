@@ -1,2 +1,2 @@
 # IBET-Project
-freshman ibet project POGGERS
+follow me on twitch https://twitch.tv/asiank0ala
